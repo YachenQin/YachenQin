@@ -2,27 +2,19 @@
 
 **Washington University in St.Louis**
 
-_Master in Data Analysis & Statistic,Department of Electrical & Systems Engineering_
-
-August. 2017 – May.2019
+_Master in Data Analysis & Statistic,Department of Electrical & Systems Engineering_                   August. 2017 – May.2019
 
 **Notre Dame university**
 
-Notre Dame’s International Summer Undergraduate Research Experience (iSURE) program
-
-June. 2016 – August. 2016
+Notre Dame’s International Summer Undergraduate Research Experience (iSURE) program                  June. 2016 – August. 2016
 
 **Tsinghua University**
 
-_Bachelor of Science in Chemical Engineering, Department of Chemical Engineering_
-
-September. 2013 – July. 2017
+_Bachelor of Science in Chemical Engineering, Department of Chemical Engineering_                 September. 2013 – July. 2017
 
 **Second Major**
 
-_Bacherlor of Journalism,School of Journalism and Communication_
-
-September. 2014 – July. 2017
+_Bacherlor of Journalism,School of Journalism and Communication_                                  September. 2014 – July. 2017
 
 
 
