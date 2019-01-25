@@ -1,6 +1,12 @@
 ## Education
 
 **Washington University in St.Louis**
+_Master in Data Analysis & Statistic,Department of Electrical & Systems Engineering_
+August. 2017 – May.2019
+(Relative course: Optimization, Advanced algorithm, Data mining)
+
+**Tsinghua University**
+
 
 
 You can use the [editor on GitHub](https://github.com/YachenQin/mysite/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
